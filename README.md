@@ -2,4 +2,4 @@
 
 Wie geht es Ihnen?
 
-Bleibt bitte gesund.
+Bleiben Sie bitte gesund.
